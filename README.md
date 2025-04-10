@@ -3,6 +3,7 @@ Darel Prasetya Fawwaz
 2409116064
 
 **Checkpoint 1**
+
 Code
 ![Screenshot 2025-04-10 172352](https://github.com/user-attachments/assets/7d5602cb-1a94-4330-8479-bfad1ec3a554)
 
