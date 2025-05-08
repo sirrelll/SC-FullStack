@@ -14,3 +14,9 @@ Hasil
 
 **Hasil Akhir MINI PROJECT**
 ![Screenshot 2025-04-17 115852](https://github.com/user-attachments/assets/ada7ef60-7368-4cff-a659-8fe3fa098790)
+
+
+
+**Checkpoint 1 (Pertemuan 2)**
+![Screenshot 2025-05-08 140456](https://github.com/user-attachments/assets/70a255c7-e8ec-44cf-a364-290c7589ed49)
+![Screenshot 2025-05-08 140503](https://github.com/user-attachments/assets/7beec24d-0e8f-4283-98a0-e6700dfe5972)
